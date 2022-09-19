@@ -1,2 +1,3 @@
-# Hello-World
-for artificial intelligence
+# Tiara juli arsita
+# F55121053 
+
